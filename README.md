@@ -9,3 +9,4 @@
 - 😄 Pronouns: äny
 - ⚡ Fun fact: every second we are closer to tomorow
 
+![DANGERUS!](https://raw.githubusercontent.com/kuchowiczp/kuchowiczp/refs/heads/main/sharp_knife.webp)
